@@ -1,8 +1,23 @@
 Tattletale
 ==========
 
-This is your accountability partner.
+<h2>Meet your annoying new accountability partner...</h2>
 
-It's a little loud mouthed brat just waiting to tell on you about <i>that thing you said you were gonna do but never did because you...(long disappointing pause)...<b>forgot</b></i>.  
+<p>Tattletale is a feisty little package that loves nothing more, than to tell people how much of a dead beat you've been.
+Remember that <i>{[THING]}</i> you said you were gonna do but never ended up doing because you...</p>
 
-So now you look like a jerk to your friends who just received emails about how you're a chump and didn't follow though with what you said you would do.
+<p>ummmmmm.....</p>
+
+<p>yea......uuh......</p>
+
+<p>l   o        n     g   d  i s ap p o  i   n     t       e     d   p  a u se...</p>
+
+<i>*clear throat*</i>
+
+<b>FoRgOt...?</b></i>
+
+<h2>Well,</h2>
+
+<p>now you look like a jerk to your friends who just received emails about how much you suck at life and don't seem to follow though with commitments.</p>
+
+
