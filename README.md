@@ -1,10 +1,8 @@
 Tattletale
 ==========
-<i>Meet your annoying new accountability partner...</i>
+<i>Meet your annoying new accountability partner...a feisty little package that loves nothing more, than to tell people how much of a dead beat you've been.</i>
 
-<p>Tattletale is a feisty little package that loves nothing more, than to tell people how much of a dead beat you've been.
-
-<h4>Remember that <i>thing</i> you said you were gonna do but never ended up doing because you...ummm...yeah...<i>forgot?</i></h4>
+<h3>Remember that <i>thing</i> you said you were gonna do but never ended up doing because you...ummm...yeah...<i>forgot?</i></h3>
 
 Well, now you look like a idiot because this little brat sent emails about how much you suck at life to all of the contacts to whom you've asked to help you not be a flake.
 
