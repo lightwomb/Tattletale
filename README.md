@@ -9,7 +9,7 @@ Well, now you look like a idiot, because this little brat just sent emails to al
 
 <h3>Oh wait, that's right, you forgot. It's ok, you just forgot, it's not that big of a deal, everything will work out.</h3>
 
-Just kidding, it's not ok, and it most definitely will NOT work out. Otherwise you'd have never placed an email in queue on some stupid web app that serves merely to inform people of what they probably already know...that you my friend, are a waste of space.
+Just kidding, it's not ok, and it most definitely will NOT work out. Otherwise you'd have never cued some stupid app to trigger an email in order to inform people of what they probably already know...that you my friend, are a waste of space.
 
 Stop being a pile of poopy worthlessness and stay on top of your sh*t!. Tattletale can help by supplying the tiny push we all need to inpire productivity; the motivation to not look like an low-life ass in front of people we care about.
 
