@@ -1,7 +1,7 @@
 COMING SOON...COMING SOON...COMING SOON...COMING SOON...
 Tattletale
 ==========
-<i>Meet your annoying new accountability partner...a feisty little package that loves nothing more, than to tell people how much of a dead beat you've been.</i>
+<i>Meet your annoying new accountability partner...a feisty little package that loves nothing more than to tell people how much of a dead beat you've been.</i>
 
 <h3>Remember that <i>thing</i> you said you were gonna do but never ended up doing because you...ummm...yeah...<i>forgot?</i></h3>
 
