@@ -11,7 +11,7 @@ Tattletale
 
 <p>Just kidding, it's not ok, and it most definitely will NOT work out. Otherwise you'd have never cued some stupid app to trigger an email in order to inform people of what they probably already know...that you my friend, are a waste of space. Stop being a pile of worthlessness and stay on top of your sh*t!.</p>
 
-<p>Tattletale can help by supplying the tiny push we all need to remember our commitments and inpire productivity; motivation to not look like an low-life ass in front of people we care about.</p>
+<p>Tattletale can help by supplying the tiny push we all need to remember our commitments and inpire productivity; motivation to not look like an low-life ass in front of the people we care about.</p>
 
 
 <i>Stay Tuned for more to come...</i>
