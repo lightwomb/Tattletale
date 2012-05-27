@@ -1,9 +1,9 @@
 Tattletale
+<i>Meet your annoying new accountability partner...</i>
 ==========
 
 <i>COMING SOON...COMING SOON...COMING SOON</i>
 
-<h4>Meet your annoying new accountability partner...</h4>
 
 <p>Tattletale is a feisty little package that loves nothing more, than to tell people how much of a dead beat you've been.
 
