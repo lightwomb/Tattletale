@@ -1,4 +1,4 @@
-Tattletale
+Tattletale is coming soon
 ==========
 
 <h2>Meet your annoying new accountability partner...</h2>
