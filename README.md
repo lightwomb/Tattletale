@@ -10,9 +10,9 @@ Well, now you look like a idiot because this little brat sent emails to all of t
 
 "[your name here] doesn't really seem to follow though with their commitments!" is what you're friends/family/boss/collegues/ex-girlfriend will be thinking when they read about how you so carelessly blew off your responsibilities.
 
-Oh wait, that's right, you forgot. It's ok, you just forgot, it's not that big of a deal, everything will work out.
+<h3>Oh wait, that's right, you forgot. It's ok, you just forgot, it's not that big of a deal, everything will work out.</h3>
 
-Just kidding, it's not ok, and it definitely work out. Otherwise you'd have never placed an email in queue on some stupid web app that serves merely to inform people of what they probably already know...that you my friend, are a waste of space.
+Just kidding, it's not ok, and it most definitely will NOT work out. Otherwise you'd have never placed an email in queue on some stupid web app that serves merely to inform people of what they probably already know...that you my friend, are a waste of space.
 
 Stop being a pile of poopy worthlessness and stay on top of your sh*t!
 
