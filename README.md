@@ -5,7 +5,7 @@ Tattletale
 
 <h3>Remember that <i>"thing"</i> you said you were gonna do but never ended up doing because you ...ummm, ...yeah, ...<i>forgot?</i></h3>
 
-<p>Well, now you look like a idiot, because this little brat just sent emails to all of the contacts you don't want to disappoint and/or let down. "[your name here] does not seem to be very reliable..." is what you're friends/family/boss/collegues/ex-girlfriend will be thinking when they read about how you so carelessly blew off your responsibilities because you were too busy sucking at life.</p>
+<p>Well, now you look like a idiot, because this little brat just sent emails to all of the contacts you don't want to disappoint and/or let down. "Not very reliable", is what you're friends/family/boss/collegues/ex-girlfriend will be thinking when they read about how you so carelessly blew off your responsibilities because you were too busy sucking at life.</p>
 
 <h4>Oh wait, that's right, you forgot. It's ok, you just forgot, it's not that big of a deal, everything will work out.</h4>
 
